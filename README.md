@@ -1,2 +1,2 @@
 yaoi slurpee expensive tea i adore miss fortune 
-proship burn in bloodiest hell
+proship racist homophobic etc burn in bloodiest hell
